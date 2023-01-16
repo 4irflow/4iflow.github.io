@@ -1,3 +1,3 @@
-# 4irflow.github.io
-Tristian Josh Imperial
+4irflow.github.io
+# Welcome to TJ's Website
 
